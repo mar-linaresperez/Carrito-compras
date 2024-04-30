@@ -10,8 +10,6 @@
 
 Linares Pérez Margarita
 
-Miranda Cuevas Ricardo
-
 **Profesor:**
 
 Cordero Ocampo Martin
